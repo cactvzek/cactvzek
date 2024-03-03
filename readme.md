@@ -1,0 +1,7 @@
+- 👋 cześć, jestem @cactvzek
+- 👀 interesuję się programowaniem i grami komputerowymi
+- 🌱 całe życie uczę się tworzenia stron internetowych
+- 🎾 w wolnym czasie gram w tenisa ziemnego
+- 📫 gdzie mnie znaleźć? najlepiej na instagramie [@cactvzek](https://www.instagram.com/cactvzek)
+- 😄 zaimki: on/jego
+- ⚡ fun fact: uwielbiam koty <33
